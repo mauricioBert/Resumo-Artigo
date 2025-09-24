@@ -26,7 +26,7 @@ O ReSist não apenas bloqueia discursos de ódio e outras interações prejudici
 - **Responsabilidade digital**  
 - **Proteção de usuários e organizações**  
 
-##Link: 
+##Link: https://docs.google.com/document/d/17eBzEnra7r-OvuVe5xkdMqUalgODq83M/edit?usp=sharing&ouid=106564744839702055734&rtpof=true&sd=true
 
 
 
